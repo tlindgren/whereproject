@@ -1,0 +1,19 @@
+title: Paying Attention to Darfur
+id: 464
+categories:
+  - Uncategorized
+date: 2006-12-05 21:17:53
+tags:
+---
+
+This week I&#039;ve been reading Richard Lanham&#039;s book _The Economics of Attention, _and it&#039;s given new meaning to the phrase &quot;paying attention.&quot; Lanham points out that if economics is the &quot;study of how human allocate resources to produce various commodities,&quot; then it would seem that in an information society like ours, information would be the scare resource that we have to figure out how to allocate. But in fact, the reality is exactly the reverse. We have too much information; it&#039;s _attention_ that&#039;s in short supply. Lanham asserts that in this context the new economists are the  artists,  the  designers, the rhetoricians because they are the ones best equipped to deal in the cultivation of human attention. 
+
+In the particular economics of attention created by the web, we&#039;ve created tools to help make sense of the information glut--search engines, blogs, rss feeds. Recently I&#039;ve been noticing how rss feeds have become a way for me to allocate attention, to make decisions about what topics I&#039;m interested in  and to let Google Reader suck in the posts that keep them in mind. Among the blogs I&#039;ve been tracking the last few months is [Coalition for Darfur](http://coalitionfordarfur.blogspot.com) which has kept a steady stream of rather grim updates coming may way, whether I felt like taking them in or not. I don&#039;t always read every post, but just their daily presence has served as a reminder to pay attention, to allocate regular portion of my thoughts and feelings to this issue that  is not going away. 
+
+A recent post made me aware of an event at tonight at BU called &quot;Accountable to Humanity: JUSTICE in Darfur,&quot;  a town hall meeting of scholars, religious leaders, media representatives and concerned citizens to discuss the genocide in Sudan.The Keynote speaker Alex de Waal was joined by moderate Susannah Sirkin and guest panelists Jennifer Leaning, Omer Ismail, Dr. Rev. Gloria White-Hammond. It was a richly informative discussion, one that was equally depressing and inspiring in that it both deepened my understanding of the horrific crisis in Darfur and made me aware of the growing global, grass-roots movement  trying to do something about it. 
+
+As I bike home, I thought back to my [Lenten reflections on _Hotel Rwanda_](/node/212) about a year ago in which I struggled to hold on to the heightened sense of concern the movie created. Even at the time is was  clear that Darfur was becoming our Rwanda, and I didn&#039;t want stand by in silence as we had before. But I knew that the inner space that opened up inside me that afternoon was going to close up, and I needed ways to prop it  a bit so maybe it might open just a little wider next time around. It occurs to me tonight that my Coalition for Darfur rss feed has been gradually working this issue into my consciousness, post by post, without me even being fully aware of it. To switch metaphors, this rss feed has  allowed me to accumulate just enough inner capital to begin &quot;paying&quot; attention, and in my mind that makes it an even more valuable tool than I first realized. 
+
+For those of you in Boston, the [Massachusetts Coalition to Save Darfur](http://www.savedarfurma.org/) has organized a candlelight Vigil for Darfur in Copley Square on International Human Rights Day (Sunday, Dec. 10) and as a part of the [Weekend of Prayer for Darfur.](http://www.savedarfur.org/pages/weekend_of_prayer) For those of you in other places, the Safe Darfur website has a page the can help you [find an event near you.](http://www.savedarfur.org/page/event/search_simple)
+
+Genocide in Darfur is happening on our watch. Are we paying attention? 

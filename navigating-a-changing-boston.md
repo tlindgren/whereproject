@@ -1,0 +1,15 @@
+title: Navigating a Changing Boston
+id: 227
+categories:
+  - Uncategorized
+date: 2005-04-04 07:40:42
+tags:
+---
+
+Saturday evening Paula had her [book](http://www.amazon.com/exec/obidos/tg/detail/-/0867095784/qid=1112622504/sr=8-1/ref=sr_8_xs_ap_i1_xgl14/103-9635824-0052643?v=glance&amp;s=books&amp;n=507846) release party at [Meze Estiarorio](http://www.mezeboston.com), a great Greek restaurant in Charlestown. As I walked to the restaurant, I was struck by the view of the [Leonard P. Zakim Bunker Hill Bridge](http://www.google.com/url?sa=U&amp;start=1&amp;q=http://www.leonardpzakimbunkerhillbridge.org/&amp;e=9888). I had often seen it before from other angles--mostly while driving--but never from the this vantage point (this blurry photo doesn't do it justice). It truly is a new Boston landmark, perhaps one of the more successful parts of the Big Dig project. 
+
+The process of getting around on Saturday marked a high point in my Boston navigation experience.  It began in the morning, when I dropped Matt off at the Cambridge Hyatt and then met Jonathan for breakfast at Renee's in Davis Square. The real fun started later in the afternoon after I met Andrea for coffee at Darwin's in Harvard Square and then had to find a good route from there to Chestnut Hill. I made my way via Soldier's Field Road, a string of Brighton back streets, and then a shortcut through BC to Hammond. After picking up Staci, we jumped on the Mass Pike to the airport to pick up Rhonda before heading to Charlestown for Paula's party. Charlestown wasn't far, but there were a few tricky turns getting off of I-93 and through the North End. After the party, we drove Rhonda back to Roslindale via Roxbury and JP, and then I took my hard-earned back route through Brookline to get back to Chestnut Hill. As I drove to all these places, I felt as if I was effortlessly following the flows of the city, as if the grooves of my inner map were guiding me within, rather than against, the contours of this place. 
+
+At the same time I experienced this Zen-like connection to the city, Boston began to change before my eyes. In the morning J. told me he might be leaving for DC by next January, in the afternoon Andrea and I discussed her job possibilty in Santa Barbara, and by evening it was clear that Staci had made her decision to begin a PhD program at UMich in the fall. And all this in addition to Monica moving out this summer to get married. 
+
+So I might be able to get around better than ever in Boston--which makes me feel at home here--but the landscape of my relationships may look very different next year. Perhaps this will make it easier to move if I decide to take a job somewhere else in the next year or two. But I'm not sure I'm happy with this consolation. Must I tear up the maps when the ink is still fresh? 
